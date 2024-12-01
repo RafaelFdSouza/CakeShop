@@ -1,2 +1,2 @@
-Projeto Intertransdiciplinar em Ciências da computação pela Universidade Cruzeiro do Sul
+Projeto Integrador Transdiciplinar em Ciências da Computação pela Universidade Cruzeiro do Sul
 
